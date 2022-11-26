@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ash-49
+- 👋 Hi, Ashley (She/They)
 
 - 📫 How to reach me Discord: Ash_#5340
 <!---
